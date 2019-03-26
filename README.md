@@ -1,2 +1,3 @@
-# Test
-pacani davaite bistree pls
+# I LOH MINECRAFT
+
+CS:G0 CASES.PL.COM.ORY TOP CASES IN CS GO!!!
